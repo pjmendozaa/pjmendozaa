@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pjmendozaa
+- 👋 Hi, I’m @pmendoar
 - 👀 I’m interested in technology and organizational growth
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on all
